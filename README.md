@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LilianDm, but you can just call me Lilian
-- 👀 I’m interested in video games (Including creating, coding, and visualizing games), computer coding, animation, and everything that goes with computer art :).
+- 👀 I’m interested in video games (Including creating, coding, and visualizing games), computer coding, animation, and everything that goes with computer art :)
 - 🌱 I’m currently learning computer programming, and lots of highschool classes.
 - 💞️ I’m looking to collaborate on school stuff and video game stuff.
 
